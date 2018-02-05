@@ -2,12 +2,14 @@ G.O.A.T.s by Matt Resnikoff
 =======
 ## Created for In-Class Assignment 5 on February 5th, 2018
 
+![Image](media/440px-Hausziege_04.jpg)
+
 Over time in sport we've seen some spectacular atheletes. Hundreds and hundreds of incredible people, and yet there are certain people who are regarded as the best of those atheletes. Those rare people, who are the most gifted and acomplished atheletes in their respective sports are refered to as GOATs, which stands for the greatest of all time. In this document we'll look at three of the goatiest goats, Michael Jordan, Tom Brady, and Roger Federer.
 
 
 Roger Federer
 =======
-## The GOATest GOAT
+## The Ageless Beloved GOAT
 
 ![Image](media/440px-Amazing_Roger_Federer.jpg)
 
@@ -19,7 +21,7 @@ Federer's all-court game and versatile style of play involves exceptional footwo
 
 Tom Brady
 =======
-## The Cheating GOAT
+## The Cheating/Also Ageless GOAT
 
 ![Image](media/440px-Patriots_on_offense_at_Super_Bowl_XXXIX_1.jpg)
 
